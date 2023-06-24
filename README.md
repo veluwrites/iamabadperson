@@ -1,6 +1,6 @@
 # iamabadperson
 
-Ich habe keine Anforderungen an dich, weil ich dich Liebe? Weil ich dich nicht als ganzen Menschen sehe. 
+Ich habe keine Anforderungen an dich, weil ich dich liebe? Weil ich dich nicht als ganzen Menschen sehe. 
 Weil ich will dass du dich frei fühlst? Weil ich nicht für dich verantwortlich sein will. Sobald du mich brauchst will ich wegrennen. Ich bin doch nur ein Kind was willst du von mir? Ich bin 22 Jahre alt. In meinem zweiten Studium. Geschlechtsreif. Wahlberechtigt. Habe einen Nebenjob. Aber ich bin doch nur ein KInd! Was willst du von mir? Ich bin zu dick zu laut zu stinkend zu peinlich. Ich atme zu laut. Ich bin doch nur ein Kind. 
 
 Ich bin kein Kind. Ich bin erwachsen. Und du bist nicht mein Vater. Du bist nur 25. Ich wünschte du würdest mich nicht lieben. Ich wünschte ich wäre dein Kind dann könnte ich dich nie verlassen? Nein. Ich wünschte du wärest nicht mein Vater dann könntest du mich verlassen. Ich dachte ich habe dir bewiesen dass mich lieben schlecht für dich ist. LASS MICH IN RUHE. ich weiß nicht worauf ich ein Recht habe. Ich bin verloren ohne dich. Bitte sag mir was richtig ist. Damit ich dir etwas vorwerfen kann. 
